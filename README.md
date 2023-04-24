@@ -1,1 +1,0 @@
-# SNE_1.0-VINTAGE
